@@ -1,1 +1,5 @@
-# mojo_cheatsheet
+IyBtb2pvX2NoZWF0c2hlZXQ=
+
+<!-- START GLOBAL CORPORATION -->
+404: Not Found
+<!-- END GLOBAL CORPORATION -->
